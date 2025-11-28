@@ -4,8 +4,6 @@
 
 In today’s diverse workforce, workplace discrimination remains a pressing issue despite decades of legal reforms and awareness efforts. 
 
-Each year, the EEOC receives hundreds of complaints regarding discrimination, showing that the issue of bias in the workplace continues to linger at all job levels and in several industries. 
-
 Workplace discrimination occurs when employees are unfairly treated because of personal characteristics such as race, gender, age, disability, religion, or sexual orientation.
 
 In the workplace, the [Race Purity Test](https://racepuritytest.net/) has evolved from a justification for exclusion and segregation to essentially advocating for inclusion, equality, and dignity across all domains.
