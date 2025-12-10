@@ -1,4 +1,4 @@
-# Everything You Need to Know About the Race Purity Test
+# A Practical Guide for Employers to Prevent Workplace Discrimination
 
 <a href="https://ibb.co/hJ5TThJ7"><img src="https://i.ibb.co/7dc008dY/digital-identity-politics.jpg" alt="digital-identity-politics" border="0"></a>
 
